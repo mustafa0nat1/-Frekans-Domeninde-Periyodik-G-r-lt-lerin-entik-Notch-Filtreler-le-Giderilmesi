@@ -1,0 +1,1 @@
+# -Frekans-Domeninde-Periyodik-G-r-lt-lerin-entik-Notch-Filtreler-le-Giderilmesi
